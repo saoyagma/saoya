@@ -3,12 +3,12 @@
 
 ---
 
-## 骚鸭视频最新网址 (2023.12.03 最后更新)
-### 【地址一】：[https://vip.saoyaava.com:13888](https://vip.saoyaava.com:13888?utm_source=github)
-### 【地址二】：[https://vip.saoyaavb.com:13888](https://vip.saoyaavb.com:13888?utm_source=github)
-### 【地址三】：[https://vip.saoyaavc.com:13888](https://vip.saoyaavc.com:13888?utm_source=github)
-### 【地址四】：[https://vip.saoyaavd.com:13888](https://vip.saoyaavd.com:13888?utm_source=github)
-### 【地址五】：[https://vip.saoyaave.com:13888](https://vip.saoyaave.com:13888?utm_source=github)
+## 骚鸭视频最新网址 (2023.12.15 最后更新)
+### 【地址一】：[https://vip.saoyaavf.com:13888](https://vip.saoyaavf.com:13888?utm_source=github)
+### 【地址二】：[https://vip.saoyaavg.com:13888](https://vip.saoyaavg.com:13888?utm_source=github)
+### 【地址三】：[https://vip.saoyaavh.com:13888](https://vip.saoyaavh.com:13888?utm_source=github)
+### 【地址四】：[https://vip.saoyaavi.com:13888](https://vip.saoyaavi.com:13888?utm_source=github)
+### 【地址五】：[https://vip.saoyaavj.com:13888](https://vip.saoyaavj.com:13888?utm_source=github)
 <br>
 
 ## 最新地址自动回复邮箱 [saoyaav@gmail.com](mailto:saoyaav@gmail.com)（发送任意内容即可获取最新地址）
